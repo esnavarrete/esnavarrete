@@ -10,6 +10,6 @@ Here are some ideas to get you started:-->
 <!-- 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...-->
-- 📫 How to reach me: Facebook: Erick Sebastián Navarrete
-- ⚡ Fun fact: ...My resume is in Spanish haha
+- 📫 How to reach me: Facebook: Erick Sebastián Navarrete, Instagram: es_navarrete, linkedIn: Erick Sebastián Navarrete Cruz 
+- ⚡ Fun fact: ...I'm left handed
 
